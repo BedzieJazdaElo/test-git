@@ -1,6 +1,7 @@
 # WOWAOAOWOAOWAOWOOAW
 
-|---|---|
-|orzel|orlica|
-|---|---|
 
+|orzel|orlica|
+|---|:---:|
+|bania|u cygana|
+|do | ranaaaa|
